@@ -17,7 +17,7 @@
 
 | 项目 | 内容 |
 |------|------|
-| 官网地址 | https://w02.scweba14.cc/ |
+| 官网地址 | https://webinv04.sc-aff.cc/auth/register?code=BAk1O2E0 |
 | 邀请码 | BAk1O2E0 |
 | 优惠码 | 202680sc |
 | 支持平台 | Windows / macOS / Android / iOS |
@@ -56,7 +56,7 @@
 
 | 项目 | 内容 |
 |------|------|
-| 官网地址 | https://www.zpcloud01.site/ |
+| 官网地址 | https://www.zpcloud01.site/auth/register?code=wq5f |
 | 邀请码 | wq5f |
 | 支持平台 | Windows / macOS / Android / iOS |
 
